@@ -1,5 +1,5 @@
 # 💫 About Me:
- Studying 
+🔭 I’m currently studying BTech 
 🤝 I’m looking for help with chatgpt
 🌱 I’m currently learning AIML
 💬 Ask me about
