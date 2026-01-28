@@ -1,5 +1,11 @@
 # 💫 About Me:
-Studying 
+ Studying 
+🤝 I’m looking for help with chatgpt
+🌱 I’m currently learning AIML
+💬 Ask me about
+⚡ Fun fact
+
+
 
 
 ## 🌐 Socials:
